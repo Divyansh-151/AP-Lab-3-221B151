@@ -1,1 +1,1 @@
-# divyansh namdev
+# Divyansh Namdev
